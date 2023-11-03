@@ -1,0 +1,3 @@
+Olá, sou Fernando Velter Marques nascido em 22-12-1987 na cidade de Dourados no Mato Grosso do Sul. Me casei em 2015 com Larissa e então resolvemos empreender, abrimos um delivery e então minha esposa veio a passar em um concurso na cidade de Terra Roxa PR.
+Malas prontas e la fomos nós para uma cidade com população 10% da cidade que até então viviamos. Ali moramos por mais 5 anos quando tomamos a decisão de ir morar na europa.
+Portugal foi o país que escolhemos para viver até o momento, mas confesso que já estamos de malas prontas para irmos para Irlanda.
